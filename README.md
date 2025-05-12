@@ -7,5 +7,12 @@
 - [AT&T Radiant Max 5G (EA211001) 64GB (AT&T) Smartphone - Clean IMEI - Q6791](https://www.ebay.com/itm/145355925974)
 - [AT&T Radiant Max 5G (EA211001) 64GB (AT&T) Smartphone - Clean IMEI - J6068](https://www.ebay.com/itm/135373436910)
 
+### Amazon:
+https://www.amazon.com/AT-Prepaid-Radiant-Max-Smartphone/dp/B098KJWTXL
+
 # sch:
 https://www.google.com/search?q=Radiant+Max+5G
+https://www.google.com/search?q=Who+is+the+manufacturer+for+Radiant+Max%3F
+
+# Wiki
+https://www.att.com/device-support/article/wireless/KM1454635/ATT/ATTEA211001
